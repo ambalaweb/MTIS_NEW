@@ -1,1 +1,1 @@
-# MTIS_NEW
+# mother_teressa_international_school
